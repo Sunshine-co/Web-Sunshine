@@ -10,9 +10,3 @@ nuestro pais.
 
 
 Cordial saludo, soy Samy Andrea Restrepo, tecnica en administracion y en gestion contable y financiera, actualmente me desempeño como asistente administrativa para las estaciones de servicios de Zeuss, vivo en Bello Antioquia. mis pasatiempos son las caminatas al aire libre, leer,ir a cine y escuchar musica.
-
----------------------------------------------------------------------------------------------------------------------
-
-Hola compañerxs
-Mi nombre es Sebastian Florez, Soy estudiante de programacion y actualmente estoy trabajando en un call center llamado 24/7 dia.
-Vivo y he vivido siempre en bello antioquia y en mis tiempos libres ademas de ver peliculas con mi familia me gusta mucho leer.
