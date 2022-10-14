@@ -15,4 +15,4 @@ Cordial saludo, soy Samy Andrea Restrepo, tecnica en administracion y en gestion
 
 Hola compañerxs
 Mi nombre es Sebastian Florez, Soy estudiante de programacion y actualmente estoy trabajando en un call center llamado 24/7 dia.
-Vivo y he vivido siempre en bello antioquia y en mis tiempos libres ademas de ver peliculas con mi familia me gusta mucho leer.
+Vivo y he vivido siempre en bello antioquia y en mis tiempos libres ademas de ver peliculas con mi familia me gusta mucho leer y hacer deporte................
