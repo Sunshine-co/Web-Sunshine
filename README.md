@@ -16,3 +16,6 @@ Cordial saludo, soy Samy Andrea Restrepo, tecnica en administracion y en gestion
 Hola compañerxs
 Mi nombre es Sebastian Florez, Soy estudiante de programacion y actualmente estoy trabajando en un call center llamado 24/7 dia.
 Vivo y he vivido siempre en bello antioquia y en mis tiempos libres ademas de ver peliculas con mi familia me gusta mucho leer y hacer deporte................
+
+-----------------------------------------------------------------------------------------------------------------------------------------
+Buenas tardes, soy Mari Luz Tabares López, Ingeniera Industrial, Especialista en dirección de producción y operaciones, actualmente trabajo como Adm. funcional del sistema de información para las areas de compras y mantenimiento en la caja de compensación familiar de caldas Confa. Vivo en Manizales, me gusta mucho la naturaleza, y soy amante de los gatos, un placer conocerlos
